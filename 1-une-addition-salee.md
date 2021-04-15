@@ -9,7 +9,7 @@ Les interventions américaines en Irak, en Afghanistan et au Pakistan ont coût�
 Les États-Unis exportent en 2020 pour 1 430 milliards de dollars de biens et importent pour 2 336 milliards de biens[^7]. La politique de M. Trump a été inopérante, sous sa présidence le déficit commercial annuel des États-Unis est passé de 735 milliards de dollars à 904 milliards. En 2020 la dette de l’ensemble de la société américaine s’élève à plus de 80 000 milliards de dollars[^8]. Les États-Unis vivent à crédit sur le plan financier et commercial. Le maintien d’un telle situation n’est pas dû à la qualité supérieure de l’économie américaine mais à sa capacité à inféoder ses « partenaires » qui doivent lui verser un tribut: en lui achetant sa dette qui lui finance ses armes, en achetant ses armes, son énergie ou ses marques[^9].
 
 
-## Au somum 
+## Au summum 
 
 _L’armée américaine surpasse largement sa concurrence, son industrie raffole de juteux contrats d’armement passés avec les porcs._
 
