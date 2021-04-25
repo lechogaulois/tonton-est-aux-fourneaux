@@ -133,7 +133,7 @@ Les États-Unis sont les vrais maîtres de l’information et comptent bien le r
 
 [^10]:  « _The alliance will deter Russian adventurism, defeat terrorists who seek to murder innocents, and address the arc of instability building on NATO’s periphery._ », _op. cit._ p. 9 
 
-[^11]:  François Hollande, [«  DISCOURS DE M. FRANÇOIS HOLLANDE, PRÉSIDENT DE LA RÉPUBLIQUE, EN HOMMAGE AUX VICTIMES DES ATTENTATS DU 13 NOVEMBRE, À PARIS LE 27 NOVEMBRE 2015 »](https://www.elysee.fr/front/pdf/elysee-module-13537-fr.pdf) _Élysée_ 27 novembre 2015, « _C'est parce qu'ils étaient la liberté qu'ils ont été massacrés_ » 
+[^11]:  François Hollande, [«  Discours de M. François Hollande, Président de la République Française, en hommage aux victimes des attentats du 13 novembre, à Paris le 27 novembre 2015 »](https://www.elysee.fr/front/pdf/elysee-module-13537-fr.pdf) _Élysée_ 27 novembre 2015, « _C'est parce qu'ils étaient la liberté qu'ils ont été massacrés_ » 
 
 [^12]:  Haoues Seniguer, [« Les ambivalences et non-dits de l’exécutif sur l’islam »](https://www.la-croix.com/Debats/ambivalences-non-dits-lexecutif-lislam-2021-02-10-1201139959) _La Croix_ 10 février 2021 
 
@@ -291,7 +291,7 @@ Les États-Unis sont les vrais maîtres de l’information et comptent bien le r
 
 [^89]:  « _Leaders at all levels should make a mental shift from winning decisive engagements to embracing the idea that “winning the battle of the narrative“ should be what drives many joint force operations in an IW environement — rather than conducting operations and attempting to tell a favorable U.S. story in the aftermath._ », _ibid._ p.39 
 
-[^90]:  « The joint force should develop enhanced working relationships with media outlets, in particular multinational and local outlets, and provide access to appropriate information. », _ibid._ p.40 
+[^90]:  « _The joint force should develop enhanced working relationships with media outlets, in particular multinational and local outlets, and provide access to appropriate information._ », _ibid._ p.40 
 
 [^91]:  « _The joint force should use appropriate and timely messaging devices and methods in order to engage in sophisticated, interactive strategic communication at the local, regional, national, and global levels._ », _loc. cit._ 
 
