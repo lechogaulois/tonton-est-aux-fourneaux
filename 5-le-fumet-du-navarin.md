@@ -98,22 +98,8 @@ Le 27 mars 2021, vingt jours après la mort d’Olivier Dassault, c’est au tou
 
 Nous nous permettons juste de souligner que des accidents impliquant des personnalités de premier plan dans les enjeux géostragiques européens sont assez fréquents. Nous ne pouvons pas nous permettre d’attribuer ces accidents à des services de renseignement, qu’ils soient occidentaux, russes ou autres. Nous n’en avons pas les moyens. Malgré tout, nous restons surpris par ces occurrences. Depuis 2010 et au niveau mondial, il y a moins de 160 accidents d’engins aériens civils par an[^72].
 
-## Un début de piste
 
-_Révélation d’un des protagonistes de l’histoire européenne contemporaine._
-
-Feu Petr Kellner a un beau-fils nommé Daniel Kretinsky. M. Kellner a permis à M. Kretinsky de devenir milliardaire en le plaçant à la tête du groupe énergétique EPH. Ce groupe a été créé en 2009 en regroupant les actifs énergétiques d’oligarques dont ceux de M. Kellner et en investissant dans le charbon[^73]. En décembre 2012, M. Kretinsky fait offrir un collier en diamant à la femme du premier ministre slovaque[^74] — une attention qui n’est pas sans rappeler l’affaire des diamants de Giscard[^75]. En janvier 2013, le groupe EPH réussit à obtenir 49% des participations de la société Eustream entretenant le tronçon slovaque d’un gazoduc chargé d’acheminer une large part du gaz russe en Slovaquie et à l’ouest[^76] — Eustream rapporte des centaines de millions d’euros de dividendes par an à ses deux actionnaires que sont EPH et l’État slovaque[^77]. En 2016, M. Kretinsky obtient 94% des parts d’EPH[^78]. En 2018, nous apprenons que EPH distribue chaque année 700 millions d’euros de dividendes à ses actionnaires[^79]. En 2020, le groupe annonce être le septième producteur d’énergie en Europe[^80].  
-
-M. Kretinsky est aussi à la tête du groupe médiatique Czech Media Invest (CMI). CMI dispose d’une participations importante dans le groupe Le Monde, structure propriétaire des journaux _Le Monde_, _Courrier Inernational_, _Télérama_ ou _Le Monde diplomatique_[^81]. CMI est actionnaire à 90% du magazine _Marianne_ et vient de racheter des actifs de Lagardère Active incluant _Elle_ et _Télé 7 jours_[^69]. 
-
-M. Kretinsky a deux colistiers en France, MM. Olivennes et Cirelli.
-
-M. Denis Olivennes est énarque, promoteur de la loi HADOPI, ancien dirigeant de  Numericable, de Canal+, de la Fnac, du _Nouvel Observateur_, d’Europe 1 et de… Lagardère Active. En janvier 2019, il passe président non exécutif de CMI en France puis il devient le nouveau directeur de _Libération_ en 2020[^83].  M. Macron a même appelé directement M. Olivennes sur son téléphone portable pour en savoir plus sur l’entrée de CMI dans le capital du groupe Le Monde en 2018, il faut dire que les deux hommes se sont connus en 2010 lorsque l’actionnariat du groupe Le Monde a changé de mains[^84]. Parmi les camarades de promotion à l’ENA de M. Olivennes[^85], il y a: Nicolas Dufourcq — directeur de la Banque publique d’investissement en charge de flécher des dizaines de milliards d’euros d’investissement public —, Emmanuel Hoog  — directeur de l’Agence France Presse de 2010 à 2018[^86], en mai 2019 il prend la direction du groupe de presse de M. Pigasse qui est un des grands actionnaires du groupe Le Monde[^87]—, Marc-Antoine Jamet — secrétaire général du groupe LVMH depuis 2011. M. Olivennes a également participé au programme d’influence américain _Young Leaders_ cuvée 1996[^88]. Il était en compagnie de François Hollande, Pierre Moscovici — ministre chargé des Affaires européennes de M. Jospin pendant quatre ans puis ministre de l’économie et des finances de M. Hollande avant de devenir commissaire européen[^89] —, et de Anne Lauvergeon — directrice d’Areva au moment du scandale UraMin, un scandale qui a amené l’entreprise nationale à payer près de deux milliards d’euros pour une mine d’uranium sans potentiel et qu’elle a fini par revendre pour cinq millions d’euros[^90], elle a pris la direction du conseil de surveillance de _Libération_ entre 2011 et 2014[^91].
-
-M. Jean-François Cirelli, énarque, ancien conseiller économique de M. Chirac[^92], personne clé dans la privatisation de GDF[^93], est responsable de la cession des participations d’Engie dans Eustream à EPH[^94] et actuellement dirigeant de la filiale française du plus grand groupe de gestion d’actifs du monde, l’américain BlackRock[^95].  Parmi les camarades de promotion à l’ENA de M. Cirelli[^96], il y a:  Patrick Strzoda — le directeur du cabinet de M. Macron depuis 2017[^97] —, Xavier Musca — ancien secrétaire général de l’Élysée de M. Sarkozy[^98] —, Jean-Claude Mallet — conseiller spécial de M. Le Drian depuis que celui-ci est devenu ministre de la guerre en 2012[^99].
-
-
-Le tapage médiatique autour de M. Navalny et les incongruités de son histoire interrogent. Tout autant que la fréquence d’accidents impliquant des acteurs géopolitiques majeurs. M. Poutine a été transparent au sujet de M. Navalny: si ses services avaient voulu le tuer, il serait déjà mort[^100]. Nous laissons au lecteur le soin de se faire son avis et nous lui conseillons de lire la suite. Nous y retrouverons le groupe Le Monde, M. Kretinsky et ses deux drilles dans cette histoire qui commence à sentir le gaz. Les problématiques financières, médiatiques, énergétiques et politiques sont intimement liées. Tout comme les membres des structures dirigeantes en France. Mais avant de nous y attarder nous allons disséquer la doctrine militaire récemment assumée par l’oncle Sam.
+Le tapage médiatique autour de M. Navalny et les incongruités de son histoire interrogent. Tout autant que la fréquence d’accidents impliquant des acteurs géopolitiques majeurs. M. Poutine a été transparent au sujet de M. Navalny: si ses services avaient voulu le tuer, il serait déjà mort[^73]. Nous laissons au lecteur le soin de se faire son avis et nous lui conseillons de lire la suite.  Tout comme les membres des structures dirigeantes en France. Mais avant de nous y attarder nous allons disséquer la doctrine militaire récemment assumée par l’oncle Sam.
 
 
 [^1]:  Piotr Smolar et Benoît Vitkine, [« La France prête à accueillir Alexeï Navalny, leader de l’opposition russe hospitalisé dans un état grave »](https://www.lemonde.fr/international/article/2020/08/20/le-leader-de-l-opposition-russe-alexei-navalny-hospitalise-dans-un-etat-grave_6049413_3210.html) _Le Monde_ 20 août 2020 à 8h06, consulté le 6 avril 2021 
@@ -260,58 +246,4 @@ Le tapage médiatique autour de M. Navalny et les incongruités de son histoire 
 
 [^72]:  Cette piste mériterait un travail d’étude statistique approfondi pour être confirmée ou infirmée, [« Aviation accidents and incidents » partie « Statistics »](https://en.wikipedia.org/wiki/Aviation_accidents_and_incidents#Statistics) _Wikipedia_ 
 
-[^73]:  EPH, [« Energetický a průmyslový holding sets up its ownergship structure and launches operations »](https://www.epholding.cz/en/press-releases/energeticky-prumyslovy-holding-sets-ownergship-structure-launches-operations/#2016) communiqué de presse du 15 octobre 2009 
-
-[^74]:  _Mister K. Petites et grandes affaires de Daniel Kretinsky_ Jérôme Lefilliâtre, p. 62 
-
-[^75]:  Antoine Jeuffin, [« Les diamants de Bokassa : l'affaire qui a empoisonné la campagne présidentielle de Valéry Giscard d'Estaing »](https://www.franceinter.fr/politique/les-diamants-de-bokassa-l-affaire-qui-a-empoisonne-la-campagne-presidentielle-de-valery-giscard-d-estaing) _France Inter_ 3 décembre 2020 
-
-[^76]:  EPH, [« EPH Acquires a 49% stake and management control in Slovenský plynárenský priemysel a.s. (SPP) »](https://www.epholding.cz/en/press-releases/eph-acquires-a-49-stake-and-management-control-in-slovensky-plynarensky-priemysel-a-s-spp/) communiqué de presse du 15 janvier 2013  
-
-[^77]:  [Indicateurs financiers 2017 présentés sur le site du l’entreprise Eustream](https://www.eustream.sk/en_investors/en_key-financials), consulté le 7 avril 2021 
-
-[^78]:  EPH, [« EPH expects a change in its shareholder structure »](https://www.epholding.cz/en/press-releases/eph-ocekava-zmenu-akcionarske-struktury/) communiqué de presse du 17 octobre 2016 
-
-[^79]:  Blaise Gauquelin et al., [« Aux origines de la fortune de Daniel Kretinsky »](https://www.lemonde.fr/actualite-medias/article/2018/11/08/aux-origines-de-la-fortune-de-daniel-kretinsky_5380692_3236.html) _Le Monde_ 8 novembre 2018 
-
-[^80]:  EPH, [« EPH results for 2019 »](https://www.epholding.cz/en/press-releases/eph-results-for-2019/) communiqué de presse du 15 juin 2020 
-
-[^81]:  [« Czech Media Invest »](https://fr.wikipedia.org/wiki/Czech_Media_Invest) _Wikipedia_ 
-
-[^82]:  Ibid. 
-
-[^83]:  [« Denis Olivennes »](https://fr.wikipedia.org/wiki/Denis_Olivennes) _Wikipedia_ 
-
-[^84]:  _Mister K. Petites et grandes affaires de Daniel Kretinsky_ Jérôme Lefilliâtre, p. 235, « _Fin août 2018, Denis Olivennes reçoit un appel sur son téléphone portable. Sur l’écran s’affiche le nom du président de la République._[…] _Leur rencontre remonte à 2010 et – ironie de la situation – à la folle aventure de la vente du groupe Le Monde. À l’époque, Emmanuel Macron, banquier d’affaires chez Rothschild, conseille, à titre gracieux, la Société des rédacteurs du quotidien. Officiellement. Car, en coulisses, il s’active pour l’offre de rachat émanant d’un trio, l’opérateur télécoms Orange, le groupe de presse espagnol Prisa et Claude Perdriel, le fondateur du Nouvel Observateur. La cheville ouvrière de cette équipe est Denis Olivennes, alors directeur de la publication de l’hebdomadaire. Mais les salariés du Monde votent massivement en faveur de l’offre concurrente, proposée par un autre trio, le mécène Pierre Bergé, le banquier d’affaires Matthieu Pigasse et le fondateur de Free Xavier Niel._ » 
-
-[^85]:  [« Liste d'élèves de l'École nationale d'administration » partie « 1986-1988: Michel de Montaigne »](https://fr.wikipedia.org/wiki/Liste_d%27%C3%A9l%C3%A8ves_de_l%27%C3%89cole_nationale_d%27administration#Montaigne)  _Wikipedia_ 
-
-[^86]:  [« Emmanuel Hoog »](https://fr.wikipedia.org/wiki/Emmanuel_Hoog) _Wikipedia_  
-
-[^87]:  Non signé, _AFP_, [« Emmanuel Hoog nommé DG du groupe de médias de Matthieu Pigasse »](https://lexpansion.lexpress.fr/actualites/1/actualite-economique/emmanuel-hoog-nomme-dg-du-groupe-de-medias-de-matthieu-pigasse_2075969.html) _L’Express_  2 mai 2019 
-
-[^88]:  [« 1996 Young Leaders »](https://frenchamerican.org/young-leaders/earlier-classes/1996/) _French-American Foundation_ 
-
-[^89]:  [« Pierre Moscovici »](https://fr.wikipedia.org/wiki/Pierre_Moscovici) _Wikipedia_ 
-
-[^90]:  Lire à ce sujet _L'homme qui en savait beaucoup trop_ de Marc Eichinger et _Les Prédateurs_ de Catherine Le Gall et Denis Robert 
-
-[^91]:  [« Anne Lauvergeon »](https://fr.wikipedia.org/wiki/Anne_Lauvergeon) _Wikipedia_ 
-
-[^92]:  [« Jean-François Cirelli »](https://fr.wikipedia.org/wiki/Jean-Fran%C3%A7ois_Cirelli) _Wikipedia_  
-
-[^93]:  Lire à ce sujet _GDF-Suez, le dossier secret de la fusion_, Joan Condijts et Feryel Gadhoum  
-
-[^94]:  _Mister K. Petites et grandes affaires de Daniel Kretinsky_ Jérôme Lefilliâtre, p. 33, « _Jean-François Cirelli est l’ancien vice-président de GDF Suez. C’est lui qui a dit oui à l’offre de Kretinsky_[pour le rachat d’Eustream] »  
-
-[^95]:  Bastien Bouchaud, [« BlackRock dépasse les 7.800 milliards de dollars d'encours »](https://www.lesechos.fr/finance-marches/gestion-actifs/blackrock-depasse-les-7800-milliards-de-dollars-dencours-1255249) _Les Échos_ 13 octobre 2020 
-
-[^96]:  [« Liste d'élèves de l'École nationale d'administration » partie « 1983-1985: Léonard de Vinci »](https://fr.wikipedia.org/wiki/Liste_d%27%C3%A9l%C3%A8ves_de_l%27%C3%89cole_nationale_d%27administration#Vinci)  _Wikipedia_ 
-
-[^97]:  [« Patrick Strzoda »](https://fr.wikipedia.org/wiki/Patrick_Strzoda) _Wikipedia_ 
-
-[^98]:  [« Xavier Musca »](https://fr.wikipedia.org/wiki/Xavier_Musca) _Wikipedia_ 
-
-[^99]:  [« Jean-Claude Mallet »](https://fr.wikipedia.org/wiki/Jean-Claude_Mallet) _Wikipedia_ 
-
-[^100]:  Nicolas Ruisseau, [« Vladimir Poutine sur l’empoisonnement d’Alexeï Navalny : “Si on l’avait voulu, l’affaire aurait été menée à son terme“ »](https://www.lemonde.fr/international/article/2020/12/18/poutine-sur-l-empoisonnement-de-l-opposant-navalny-si-on-l-avait-voulu-l-affaire-aurait-ete-menee-a-son-terme_6063846_3210.html) _Le Monde_ 18 décembre 2020
+[^73]:  Nicolas Ruisseau, [« Vladimir Poutine sur l’empoisonnement d’Alexeï Navalny : “Si on l’avait voulu, l’affaire aurait été menée à son terme“ »](https://www.lemonde.fr/international/article/2020/12/18/poutine-sur-l-empoisonnement-de-l-opposant-navalny-si-on-l-avait-voulu-l-affaire-aurait-ete-menee-a-son-terme_6063846_3210.html) _Le Monde_ 18 décembre 2020
