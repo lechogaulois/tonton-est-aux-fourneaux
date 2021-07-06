@@ -41,9 +41,9 @@ _Le plan de modernisation du feu nucléaire américain à 1000 milliards de doll
 
 Les plus hauts hiérarques de l’armée américaine ont appelé de leurs voeux le développement de bombes nucléaires miniaturisées, la précédente génération était trop destructrice et donc inutilisable. Le développement d’une partie de ces nouveaux ustensiles meurtriers lancés par l’administration Obama en 2014 est maintenant terminé. Les bombes nucléaires utilisables équipent depuis janvier 2020 les sous-marins américains[^24], fin décembre 2020 elles ont toutes été livrées[^25]. Il ne fallait pas gâcher le plan de modernisation de l’arsenal nucléaire à 1 000 milliards de dollars validé par M. Obama et son vice-président d’alors: M. Biden[^26]. M. Obama tenait à l’époque un discours résolument pro-dénucléarisation. C’était un discours.  En juin 2019, le candidat Biden annonce être favorable au désarmement nucléaire et contre les bombes nucléaires utilisables[^27].
 
-1 000 000 000 000 de dollars, c’est plus de vingt fois les 37 milliards d’euros du plan de modernisation de la bombe atomique française lancé en 2018 par M. Macron[^28]. Ces chiffres n’incluent pas les dépassements de budget. L’investissement américain est démesuré et n’est pas sans rappeler l’initiative « guerre des étoiles » de l’administration de M. Reagan dans les années 80[^29]. A l’époque il s’agissait de créer un bouclier pour se protéger, maintenant il s’agit de créer des armes pour assurer sa protection, dit-on. Le projet de M. Reagan n’a jamais abouti alors que celui de M. Obama donne déjà des fruits radioactifs.
+1 000 000 000 000 de dollars, c’est plus de vingt fois les 37 milliards d’euros du plan de modernisation de la bombe atomique française lancé en 2018 par M. Macron[^28]. Ces chiffres n’incluent pas les dépassements de budget. L’investissement américain est démesuré et n’est pas sans rappeler l’initiative « guerre des étoiles » de l’administration de M. Reagan dans les années 80[^29]. À l’époque il s’agissait de créer un bouclier pour se protéger, maintenant il s’agit de créer des armes pour assurer sa protection, dit-on. Le projet de M. Reagan n’a jamais abouti alors que celui de M. Obama donne déjà des fruits radioactifs.
 
-L’armée américaine aurait à sa disposition 3800 missiles nucléaires prêts à l’emploi[^30] contre 200 pour la Chine[^31]. Il s’agit d’estimations car les capacités de la Chine ne sont pas publiques, comme celles des États-Unis depuis l’élection de M. Trump. La Chine a une doctrine claire et revendiquée sur l’usage des armes nucléaires: pas en premier. Depuis 2018, l’oncle Sam prévoit d’utiliser le feu nucléaire en cas d’attaque non nucléaire importante ou si une population civile est ciblée ou si une infrastructure est ciblée[^32]. Tonton pourra allumer le feu quand il le voudra avec des critères d’engagement aussi flous[^33]. Surtout maintenant qu’il s’est équipé de bombes nucléaires utilisables. 
+L’armée américaine aurait à sa disposition 3800 ogives nucléaires prêtes à l’emploi[^30] contre 200 pour la Chine[^31]. Il s’agit d’estimations car les capacités de la Chine ne sont pas publiques, comme celles des États-Unis depuis l’élection de M. Trump. La Chine a une doctrine claire et revendiquée sur l’usage des armes nucléaires: pas en premier. Depuis 2018, l’oncle Sam prévoit d’utiliser le feu nucléaire en cas d’attaque non nucléaire importante ou si une population civile est ciblée ou si une infrastructure est ciblée[^32]. L’oncle Sam pourra allumer le feu quand il le voudra avec des critères d’engagement aussi flous[^33]. Surtout maintenant qu’il s’est équipé de bombes nucléaires utilisables. 
 
 ## Pas vu, pas pris
 
@@ -55,9 +55,9 @@ En 2014, le _Washington Post_ nous apprend que l’oncle Sam pouvait compter sur
 
 Il n’y a pas que la surveillance qui compte dans l’espace numérique, il y a les capacités de cyber guerre aussi. 
 
-_Der Spiegel_ nous en révèle une partie en 2015 après analyse de documents révélés par Edward Snowden[^38]. Ces documents nous apprennent que la surveillance n’était qu’un préalable au développement de capacités cyber hors normes. Avec le développement du _cloud_, l’oncle Sam peut paralyser et endommager toutes sortes d’infrastructure: communications, messagerie bancaire[^39], centrale électrique, aéroports, distribution d’eau, etc. Le sabotage des usines d’enrichissements d’uranium en Iran en est une preuve[^40]. La mise sur écoute de Mme Merkel, de la commission européenne ou du plus grand opérateur de télécom belge en est une autre. 
+_Der Spiegel_ nous en révèle une partie en 2015 après analyse de documents révélés par Edward Snowden[^38]. Ces documents nous apprennent que la surveillance n’était qu’un préalable au développement de capacités cyber hors normes. Avec le développement du _cloud_, l’oncle Sam peut paralyser et endommager toutes sortes d’infrastructure: communications, messagerie bancaire[^39], centrale électrique, aéroports, distribution d’eau, etc. Le sabotage des usines d’enrichissements d’uranium en Iran en est une preuve[^40]. La mise sur écoute de Mme Merkel, de la Commission européenne ou du plus grand opérateur de télécom belge en est une autre. 
 
-L’oncle Sam n’a pas d’alliés cyber sur le continent européen, il ne fait confiance qu’aux anglo-saxons regroupés dans le groupe des _Five Eyes_[^41]. Ce club est composé des États-Unis, du Royaume-Uni, de la Nouvelle-Zélande, de l’Australie et du Canada. Ils y collaborent de manière très rapprochée dans tous les domaines touchant à l’espionnage et au cyberespace. Les non anglo-saxons sont mis à l’écart de cette puissance quasi divine. 
+L’oncle Sam n’a pas d’alliés cyber sur le continent européen, il ne fait confiance qu’aux Anglo-saxons regroupés dans le groupe des _Five Eyes_[^41]. Ce club est composé des États-Unis, du Royaume-Uni, de la Nouvelle-Zélande, de l’Australie et du Canada. Ils y collaborent de manière très rapprochée dans tous les domaines touchant à l’espionnage et au cyberespace. Les non Anglo-saxons sont mis à l’écart de cette puissance quasi divine. 
 
 L’oncle américain sait qu’il a ouvert la boîte de Pandore. Les dégâts des armes cybers peuvent être colossaux. Il n’y a qu’à imaginer ce qu’impliquerait la perturbation d’un réseau électrique[^42], l’ouverture inopinée d’un barrage[^43],  la destruction des données de soin d’un hôpital[^44], la perturbation des réseaux télécom et internet[^45] , la destruction du système d’information d’une banque[^46]  ou le dérèglement d’une station d’épuration[^47]. 
 
@@ -92,15 +92,15 @@ Le président des États-Unis d’Amérique ne tire plus les ficelles qui animen
 
 [^6]: [« Summary of findings » Costs of war project](https://watson.brown.edu/costsofwar/papers/summary) _Brown University_ consultée le 11 mars 2021 
 
-[^7]: [« Trade in Goods with World, Seasonally Adjusted »](https://www.census.gov/foreign-trade/balance/c0004.html) _Census Bureau_ 
+[^7]: [« Trade in Goods with World, Seasonally Adjusted »](https://www.census.gov/foreign-trade/balance/c0004.html) _Census Bureau_ consultée le 1er juillet 2021 
 
 [^8]: [« All Sectors; Debt Securities and Loans; Liability, Level »](https://fred.stlouisfed.org/series/TCMDO) _Federal reserve bank of St. Louis_ consultée le 11 mars 2021 
 
 [^9]:  Il s’agirait d’une manière de montrer sa fidélité ou son allégeance aux États-Unis en leur apportant une contribution, comme cela se pratiquait dans les anciens systèmes de relations entre puissances. Cette compréhension de la dette américaine a été avancée par David Graeber dans le premier chapitre de son livre _Dette: 5000 ans d’histoire_.
 
-[^10]: [« The countries with the most billionaires »](https://www.forbes.com/sites/jonathanponciano/2020/04/08/the-countries-with-the-most-billionaires-in-2020/) _Forbes_ 8 avril 2020 
+[^10]: Jonathan Ponciano, [« The countries with the most billionaires »](https://www.forbes.com/sites/jonathanponciano/2020/04/08/the-countries-with-the-most-billionaires-in-2020/) _Forbes_ 8 avril 2020 
 
-[^11]: [« États-Unis : camouflet pour Donald Trump sur le budget de la défense »](https://www.lemonde.fr/international/article/2020/12/29/%C3%89tats-Unis-camouflet-pour-donald-trump-sur-le-budget-de-la-defense_6064703_3210.html) _Le Monde_ 29 décembre 2020 
+[^11]:  AFP, [« États-Unis : camouflet pour Donald Trump sur le budget de la défense »](https://www.lemonde.fr/international/article/2020/12/29/etats-unis-camouflet-pour-donald-trump-sur-le-budget-de-la-defense_6064703_3210.html) _Le Monde_ 29 décembre 2020 
 
 [^12]: [« The 15 countries with the highest military spending worldwide in 2019 »](https://www.statista.com/statistics/262742/countries-with-the-highest-military-spending/) _Statista_ 
 
@@ -108,53 +108,53 @@ Le président des États-Unis d’Amérique ne tire plus les ficelles qui animen
 
 [^14]:  Lire notamment _Dr Saoud et Mr Djihad_ de Pierre Conesa, l’auteur y analyse la promotion mondiale d’un Islam rétrograde par l’arabie saoudite. 
 
-[^15]:  [« Arabie Saoudite: Une victime de viol punie pour avoir parlé »](https://www.hrw.org/fr/news/2007/11/15/arabie-saoudite-une-victime-de-viol-punie-pour-avoir-parle) _Human Rights Watch_ 15 novembre 2007 
+[^15]:  Human Rights Watch, [« Arabie Saoudite: Une victime de viol punie pour avoir parlé »](https://www.hrw.org/fr/news/2007/11/15/arabie-saoudite-une-victime-de-viol-punie-pour-avoir-parle) communiqué de presse du 15 novembre 2007 
 
-[^16]:  [« Les vrais desseins de M. George Bush »](https://www.monde-diplomatique.fr/2002/11/KLARE/9606) _Le Monde diplomatique_ novembre 2002 
+[^16]:  Michael Klare, [« Les vrais desseins de M. George Bush »](https://www.monde-diplomatique.fr/2002/11/KLARE/9606) _Le Monde diplomatique_ novembre 2002 
 
-[^17]:  [« U.S. military bases over the seas: the facts »](https://www.overseasbases.net/fact-sheet.html) _Overseas base realignment and closure coalition_  consultée le 11 mars 2021 
+[^17]:  Overseas base realignment and closure coalition, [« U.S. military bases over the seas: the facts »](https://www.overseasbases.net/fact-sheet.html) consultée le 11 mars 2021 
 
-[^18]: [« Inside Camp Humphreys, South Korea: America's largest overseas military base »](https://time.com/5324575/us-camp-humphreys-south-korea-largest-military-base/) _Time_ 11 juillet 2018 
+[^18]:  Jospeh Hincks, [« Inside Camp Humphreys, South Korea: America's largest overseas military base »](https://time.com/5324575/us-camp-humphreys-south-korea-largest-military-base/) _Time_ 11 juillet 2018 
 
-[^19]:  [« I Took Part in the US-South Korean War Drills. They Make All of Us Less Safe. »](https://truthout.org/articles/i-took-part-in-the-us-south-korean-war-drills-they-make-all-of-us-less-safe/) _Truthout_ 8 mars 2021 
+[^19]:  Jovanni Reyes, [« I Took Part in the US-South Korean War Drills. They Make All of Us Less Safe. »](https://truthout.org/articles/i-took-part-in-the-us-south-korean-war-drills-they-make-all-of-us-less-safe/) _Truthout_ 8 mars 2021 
 
-[^20]:  [« Number of military personnel in NATO countries 2020 »](https://www.statista.com/statistics/584286/number-of-military-personnel-in-nato-countries/) _Statista_ consultée le 11 mars 2021 
+[^20]:  [« Number of military personnel in NATO countries 2020 »](https://www.statista.com/statistics/584286/number-of-military-personnel-in-nato-countries/) _Statista_  
 
-[^21]:  [« 'Whores of War' Under Fire »](https://www.spiegel.de/international/world/blackwater-blacklisted-whores-of-war-under-fire-a-506554.html) _Der Spiegel_ 19 septembre 2007 
+[^21]:  Marc Pitzke, [« 'Whores of War' Under Fire »](https://www.spiegel.de/international/world/blackwater-blacklisted-whores-of-war-under-fire-a-506554.html) _Der Spiegel_ 19 septembre 2007 
 
-[^22]:  [« Exclusive: Long-withheld Pentagon survey shows widespread racial discrimination, harassment »](https://www.reuters.com/article/us-usa-military-civilrights-exclusive/exclusive-long-withheld-pentagon-survey-shows-widespread-racial-discrimination-harassment-idUSKBN29J1N1) _Reuters_ 14 janvier 2021 
+[^22]:  Phil Stewart, [« Exclusive: Long-withheld Pentagon survey shows widespread racial discrimination, harassment »](https://www.reuters.com/article/us-usa-military-civilrights-exclusive/exclusive-long-withheld-pentagon-survey-shows-widespread-racial-discrimination-harassment-idUSKBN29J1N1) _Reuters_ 14 janvier 2021 
 
-[^23]:  [« Mercenaires africains pour guerres américaines »](https://www.monde-diplomatique.fr/2012/05/VICKY/47652) _Le Monde diplomatique_ mai 2012 
+[^23]:  Alain Vicky, [« Mercenaires africains pour guerres américaines »](https://www.monde-diplomatique.fr/2012/05/VICKY/47652) _Le Monde diplomatique_ mai 2012 
 
-[^24]:  [« Navy Missile Sub Has Begun Its First Patrol Armed With Controversial Low Yield Nukes »](https://www.thedrive.com/the-war-zone/32009/navy-missile-sub-has-begun-its-first-patrol-armed-with-controversial-low-yield-nukes) _The Drive_ 29 janvier 2020 
+[^24]:  Joseph Trevithick, [« Navy Missile Sub Has Begun Its First Patrol Armed With Controversial Low Yield Nukes »](https://www.thedrive.com/the-war-zone/32009/navy-missile-sub-has-begun-its-first-patrol-armed-with-controversial-low-yield-nukes) _The Drive_ 29 janvier 2020 
 
-[^25]:  [« New Low-Yield Nuclear Warheads That Biden Calls A "Bad Idea" Have All Been Delivered »](https://www.thedrive.com/the-war-zone/38469/production-of-new-low-yield-nuclear-warheads-that-biden-calls-a-bad-idea-is-complete) _The Drive_ 29 décembre 2020 
+[^25]:  Joseph Trevithick, [« New Low-Yield Nuclear Warheads That Biden Calls A "Bad Idea" Have All Been Delivered »](https://www.thedrive.com/the-war-zone/38469/production-of-new-low-yield-nuclear-warheads-that-biden-calls-a-bad-idea-is-complete) _The Drive_ 29 décembre 2020 
 
-[^26]:  [« Obama’s Rationale for $1Trillion Nuke Plan Signals New Arms Race »](https://theintercept.com/2016/02/23/obamas-new-rationale-for-1-trillion-nuclear-program-augurs-a-new-arms-race-with-russia/) _The Intercept_ 23 février 2016 
+[^26]:  Alex Emmons,[« Obama’s Rationale for $1Trillion Nuke Plan Signals New Arms Race »](https://theintercept.com/2016/02/23/obamas-new-rationale-for-1-trillion-nuclear-program-augurs-a-new-arms-race-with-russia/) _The Intercept_ 23 février 2016 
 
-[^27]:  [« Presidential Candidates: Joe Biden »](https://livableworld.org/presidential-candidates-joe-biden/) _Council for a livable world_ juin 2019 
+[^27]:  Council for a livable world, [« Presidential Candidates: Joe Biden »](https://livableworld.org/presidential-candidates-joe-biden/) juin 2019 
 
-[^28]:  [« Macron livre sa vision de la dissuasion nucléaire française, avec une touche d'Europe »](https://www.lepoint.fr/societe/macron-livre-sa-vision-de-la-dissuasion-nucleaire-francaise-avec-une-touche-d-europe-05-02-2020-2361376_23.php) _Le Point_ 5 février 2020 
+[^28]:  AFP, [« Macron livre sa vision de la dissuasion nucléaire française, avec une touche d'Europe »](https://www.lepoint.fr/societe/macron-livre-sa-vision-de-la-dissuasion-nucleaire-francaise-avec-une-touche-d-europe-05-02-2020-2361376_23.php) _Le Point_ 5 février 2020 
 
-[^29]:   [ Ronald Reagan a-t-il vraiment « gagné la guerre froide » ? ](https://theconversation.com/ronald-reagan-a-t-il-vraiment-gagne-la-guerre-froide-155346) _The Conversation_ 17 février 2021 
+[^29]:  Pierre Grosser, [ Ronald Reagan a-t-il vraiment « gagné la guerre froide » ? ](https://theconversation.com/ronald-reagan-a-t-il-vraiment-gagne-la-guerre-froide-155346) _The Conversation_ 17 février 2021 
 
-[^30]:  [« Trump Administration Again Refuses To Disclose Nuclear Weapons Stockpile Size »](https://fas.org/blogs/security/2020/12/nuclear-stockpile-denial-2020/) _Federation of American Scientists_ 3 décembre 2020 
+[^30]:  Hans Kristensen, [« Trump Administration Again Refuses To Disclose Nuclear Weapons Stockpile Size »](https://fas.org/blogs/security/2020/12/nuclear-stockpile-denial-2020/) _Federation of American Scientists_ 3 décembre 2020 
 
-[^31]:  [« The Pentagon’s 2020 China Report »](https://fas.org/blogs/security/2020/09/the-pentagons-2020-china-report/) _Federation of American Scientists_  1 septembre 2020 
+[^31]:  Hans Kristensen et Matt Korda, [« The Pentagon’s 2020 China Report »](https://fas.org/blogs/security/2020/09/the-pentagons-2020-china-report/) _Federation of American Scientists_  1 septembre 2020 
 
-[^32]:  [« Nuclear posture review: Role of U.S. Nuclear Weapons »](https://fas.org/issues/nuclear-weapons/nuclear-posture-review/#1517582676581-5e95c499-5837) _Federation of American Scientists_ 6 juin 2018 
+[^32]:  Hans Kristensen et Adam Mount, [« Nuclear posture review: Role of U.S. Nuclear Weapons »](https://fas.org/issues/nuclear-weapons/nuclear-posture-review/#1517582676581-5e95c499-5837) _Federation of American Scientists_ 6 juin 2018 
 
 [^33]:  Tout comme la France dont les secrets concernant l’usage du feu nucléaire sont classés pour l’éternité, doctrine encore d’actualité en 2018 selon [le « rapport sur le secret de la défense nationale » publié par le Secrétariat général de la défense nationale](http://www.sgdsn.gouv.fr/uploads/2018/01/rapport-sgdsn-secret-defense-2018.pdf).
 
-[^34]:  [« En 2018, le budget du renseignement américain s’est élevé à 81,5 milliards de dollars, en hausse de 11,6% »](http://www.opex360.com/2018/10/31/en-2018-le-budget-du-renseignement-americain-sest-eleve-a-815-milliards-de-dollars-en-hausse-de-116/) _Opex360_ 31 octobre 2018 
+[^34]:  Laurent Lagneau, [« En 2018, le budget du renseignement américain s’est élevé à 81,5 milliards de dollars, en hausse de 11,6% »](http://www.opex360.com/2018/10/31/en-2018-le-budget-du-renseignement-americain-sest-eleve-a-815-milliards-de-dollars-en-hausse-de-116/) _Opex360_ 31 octobre 2018 
 
 [^35]:  [« Intelligence budget data »](https://fas.org/irp/budget/) _Federation of American Scientists_
 
-[^36]:  [« 5.1 million Americans have security clearances. That’s more than the entire population of Norway. »](https://www.washingtonpost.com/news/the-switch/wp/2014/03/24/5-1-million-americans-have-security-clearances-thats-more-than-the-entire-population-of-norway/) _The Washington Post_ 24 mars 2014 
+[^36]:  Brian Fung, [« 5.1 million Americans have security clearances. That’s more than the entire population of Norway. »](https://www.washingtonpost.com/news/the-switch/wp/2014/03/24/5-1-million-americans-have-security-clearances-thats-more-than-the-entire-population-of-norway/) _The Washington Post_ 24 mars 2014 
 
-[^37]:  [« NSA Prism program taps in to user data of Apple, Google and others »](https://www.theguardian.com/world/2013/jun/06/us-tech-giants-nsa-data) _The Guardian_ 7 juin 2013 
+[^37]:  Glenn Greenwald et Ewen MacAskill, [« NSA Prism program taps in to user data of Apple, Google and others »](https://www.theguardian.com/world/2013/jun/06/us-tech-giants-nsa-data) _The Guardian_ 7 juin 2013 
 
-[^38]:  [« NSA Preps America for Future Battle »](https://www.spiegel.de/international/world/new-snowden-docs-indicate-scope-of-nsa-preparations-for-cyber-battle-a-1013409.html) _Der Spiegel_ 17 janvier 2015 
+[^38]:  Von Jacob Appelbaum et al., [« NSA Preps America for Future Battle »](https://www.spiegel.de/international/world/new-snowden-docs-indicate-scope-of-nsa-preparations-for-cyber-battle-a-1013409.html) _Der Spiegel_ 17 janvier 2015 
 
 [^39]:  [« Society for Worldwide Interbank Financial Telecommunication »](https://fr.wikipedia.org/wiki/Society_for_Worldwide_Interbank_Financial_Telecommunication) _Wikipedia_ 
 
@@ -162,7 +162,7 @@ Le président des États-Unis d’Amérique ne tire plus les ficelles qui animen
 
 [^41]:  [« Five Eyes »](https://fr.wikipedia.org/wiki/Five_Eyes) _Wikipedia_ 
 
-[^42]:  [« U.S. Escalates Online Attacks on Russia’s Power Grid »](https://www.nytimes.com/2019/06/15/us/politics/trump-cyber-russia-grid.html) _The New York Times_ 15 juin 2019 
+[^42]:  David E. Sanger et Nicole Perlroth,[« U.S. Escalates Online Attacks on Russia’s Power Grid »](https://www.nytimes.com/2019/06/15/us/politics/trump-cyber-russia-grid.html) _The New York Times_ 15 juin 2019 
 
 [^43]:  [« Centrale nucléaire du Bugey » partie « Risques naturels et technologiques majeurs sur la centrale »](https://fr.wikipedia.org/wiki/Centrale_nucl%C3%A9aire_du_Bugey#Risques_naturels_et_technologiques_majeurs_sur_la_centrale) _Wikipedia_ 
 
@@ -174,20 +174,20 @@ Le président des États-Unis d’Amérique ne tire plus les ficelles qui animen
 
 [^47]:  [Fil de discussion à ce sujet](https://news.ycombinator.com/item?id=26070262) _Hacker News_ février 2021 
 
-[^48]:  [« Vault 7: CIA Hacking Tools Revealed » partie présentant l’usage de techniques de dissimulation](https://wikileaks.org/ciav7p1/cms/page_11629046.html) _Wikileaks_  
+[^48]:  WikiLeaks, [« Vault 7: CIA Hacking Tools Revealed » partie présentant l’usage de techniques de dissimulation](https://wikileaks.org/ciav7p1/cms/page_11629046.html)  
 
 [^49]:  [« Hive »](https://wikileaks.org//vault8/#Hive) _Wikileaks_ 9 novembre 2017 
 
-[^50]:  « _And, frankly, we got more capacity than anybody both offensively and defensively._ », [« Press Conference by President Obama after G20 Summit »](https://obamawhitehouse.archives.gov/the-press-office/2016/09/05/press-conference-president-obama-after-g20-summit), archives officielles de la Maison Blanche, 5 septembre 2016  
+[^50]:  « _And, frankly, we got more capacity than anybody both offensively and defensively._ », Maison Blanche, [« Press Conference by President Obama after G20 Summit »](https://obamawhitehouse.archives.gov/the-press-office/2016/09/05/press-conference-president-obama-after-g20-summit) 5 septembre 2016  
 
-[^51]:  [« La DGSI renouvelle son contrat avec l'Américain Palantir, faute de système 100 % français »](https://www.usinenouvelle.com/article/la-dgsi-renouvelle-son-contrat-avec-l-americain-palantir-faute-de-systeme-100-francais.N908289) _L’Usine nouvelle_ 27 novembre 2019 
+[^51]:  Reuters, [« La DGSI renouvelle son contrat avec l'Américain Palantir, faute de système 100 % français »](https://www.usinenouvelle.com/article/la-dgsi-renouvelle-son-contrat-avec-l-americain-palantir-faute-de-systeme-100-francais.N908289) _L’Usine nouvelle_ 27 novembre 2019 
 
-[^52]:  [« Microsoft ne sera plus l'hébergeur du Health Data Hub... dans deux ans »](https://www.usine-digitale.fr/article/d-ici-deux-ans-microsoft-ne-sera-plus-l-hebergeur-du-health-data-hub.N1031429) _L’Usine Digitale_ 23 novembre 2020 
+[^52]:  Alice Vitard, [« Microsoft ne sera plus l'hébergeur du Health Data Hub... dans deux ans »](https://www.usine-digitale.fr/article/d-ici-deux-ans-microsoft-ne-sera-plus-l-hebergeur-du-health-data-hub.N1031429) _L’Usine Digitale_ 23 novembre 2020 
 
 [^53]:  [« Cloud Act »](https://fr.wikipedia.org/wiki/CLOUD_Act) _Wikipedia_ 
 
-[^54]:  [« Emmanuel Macron: «La souveraineté numérique se joue au niveau de l’Europe» »](https://www.lefigaro.fr/secteur/high-tech/emmanuel-macron-la-souverainete-numerique-se-joue-au-niveau-de-l-europe-20190516) _Le Figaro_ 16 mai 2019 
+[^54]:  Elsa Bembaron, [« Emmanuel Macron: «La souveraineté numérique se joue au niveau de l’Europe» »](https://www.lefigaro.fr/secteur/high-tech/emmanuel-macron-la-souverainete-numerique-se-joue-au-niveau-de-l-europe-20190516) _Le Figaro_ 16 mai 2019 
 
-[^55]:  [« Remarks by President Obama at U.N. Peacekeeping Summit »](https://obamawhitehouse.archives.gov/the-press-office/2015/09/28/remarks-president-obama-un-peacekeeping-summit), archives officielles de la Maison Blanche, 28 septembre 2015  
+[^55]:  Maison Blanche, [« Remarks by President Obama at U.N. Peacekeeping Summit »](https://obamawhitehouse.archives.gov/the-press-office/2015/09/28/remarks-president-obama-un-peacekeeping-summit) 28 septembre 2015  
 
-[^56]:  Episode 6 « Tout est bon pour tonton », à paraître prochainement. 
+[^56]:  Episode 6 [« Tout est bon pour tonton »](https://lechogaulois.fr/tout-est-bon-pour-tonton.html) 
